@@ -8,4 +8,4 @@
 
 <p align="center"> <img width="220" height="220" src="https://i.postimg.cc/d08q8NQj/b000210df0ebc05905dede32ada9f993.jpg"/>
   
-#### [tiktok](https://www.tiktok.com/@kishliaa)                               [vk](https://vk.com/ke7str)                  [roblox](https://www.roblox.com/users/7672776614/profile)
+#### [tiktok](https://www.tiktok.com/@kishliaa)ㅤㅤㅤ[vk](https://vk.com/ke7str)ㅤㅤㅤ[roblox](https://www.roblox.com/users/7672776614/profile)
